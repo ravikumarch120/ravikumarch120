@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @ravikumarch120
 - 👀 I’m interested in ...Coding,Music,Playing Sports
-- 🌱 I’m currently learning ...Mnay ..haha
+- 🌱 I’m currently learning ...Many ..haha
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...Drop me mail
 - 😄 Pronouns: ...
